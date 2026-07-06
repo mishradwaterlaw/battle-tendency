@@ -1,1 +1,1 @@
-# battle-tendency
+# battle-tendency# battle-tendency
